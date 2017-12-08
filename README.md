@@ -21,6 +21,11 @@ Then in galoshes and a cassock, He worshipss It upon the floor.
 The Invalid wakes up in terror To feel his toes becoming numb;
 The doctor's made another error- What unkown symptoms are to come?
 
+The Keeper, when it’s time for luncheon,
+Flings down his charge upon the bed,
+And taking out a home-made truncheon,
+Belabors him about the head.
+
 The Lazar, blessed with an appearance
 Enough to give the strongest qualms.
 Has little need of perseverance
