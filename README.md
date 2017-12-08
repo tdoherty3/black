@@ -15,7 +15,18 @@ Enough to give the strongest qualms.
 Has little need of perseverance
 In prompting a display of alms.
 
+The Nun is fearfully bedevilled:
+She runs about and moans and shrieks;
+Her flesh is bruised, her clothes dishevelled:
+She's been like this for weeks and weeks.
+
+The Orphan whom there's none to cherish
+Strays through the gloom on naked feet;
+She presently will fall, and perish
+Unnoticed in some squalid street.
+
 The Zouave used to war and battle
 Would sooner take a life than not:
 It scarecly has begun to prattle
 When he impales to hapless tot.
+
