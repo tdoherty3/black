@@ -27,7 +27,17 @@ In prompting a display of alms.
 The Proctor buys a pupil ices, And hopes the boy will not resist
 When he attempts to practise vices Few people even know exist.
 
-The Zouave used to war and battle
-Would sooner take a life than not:
-It scarecly has begun to prattle
-When he impales to hapless tot.
+The sight of the Uncle gives no pleasure,
+But rather cases much alarm:
+The children know that at his leisure
+He plans to have them to have them come to harm.
+
+ The Yegg on rubber soles comes creeping
+ Inside the house when it is late,
+ And while the occupants are sleeping,
+ Remuve the heirlooms and the plate
+
+ The Zouave used to war and battle
+ Would sooner take a life than not:
+ It scarecly has begun to prattle
+ When he impales to hapless tot.
