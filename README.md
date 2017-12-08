@@ -1,8 +1,10 @@
-
 # The Fatal Lozenge, By Edward Gorey
 
 An Apparition of her lover She recognizes with dismay;
 and later on she will discover that he himself had died today.
+
+The Baby, lying meek and quiet Upon the customary rug, Has dreams about rampage and riot, And will grow up to be a thug.
+
 
 The Cad decides he has grown weary Of this affair, and that is that;
 And so he tells her just dreary He thinks she is, then leaves the flat.
